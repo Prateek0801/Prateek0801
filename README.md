@@ -51,5 +51,5 @@ To become a **Software Engineer** and contribute to innovative technology soluti
 
 ## 📫 Connect With Me
 
-* 💼 [LinkedIn](https://www.linkedin.com/in/prateek-kulkarni-134456370/)
+* 💼 [LinkedIn](https://www.linkedin.com/in/prateek0801/)
 * 📧 [prateekulkarni.0801@gmail.com](mailto:prateekulkarni.0801@gmail.com)
